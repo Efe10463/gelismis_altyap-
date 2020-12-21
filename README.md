@@ -1,2 +1,0 @@
-# gelismis_altyap-
-Efe
